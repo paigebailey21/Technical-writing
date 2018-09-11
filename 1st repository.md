@@ -1,5 +1,0 @@
-#demo#
-I have never used GitHub. Normally I simply used pages or microsoft word.
-##demo subheading##
-Now lets try *italics*.
-To insert a bold you need to used two astrics. **Like so.**
