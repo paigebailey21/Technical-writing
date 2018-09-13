@@ -16,7 +16,7 @@ Today American Cream Drafts are working horses. They pull wagons, carts, plows, 
 In conclusion, the American Cream Drafts came from a single mare and have steadily grown in numbers and population over the years; thanks to the hard work and dedication of the breeders. Even though this breed does not have a bearing in any country other than the United States, these gentle giants captured the hearts of many with their dreamy eyes and shiny cream coat. Not only are they gorgeous, but they also know how to get a job done. An American Cream Draft would be a great breed for a beginner looking to get involved in the draft horse community. 
 
 
-[Work Cited]
+[Work Cited
 
 1.	http://www.horsenation.com/2013/08/31/10-rarest-horse-breeds/
 2.  https://livestockconservancy.org/index.php/heritage/internal/americancream  
